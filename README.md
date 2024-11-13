@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @someyoKAMALutsho
+- 👀 I’m interested in ... gaming & travelling
+- 🌱 I’m currently learning ... c++ & java
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... utsho@graduate.utm.my
